@@ -1,4 +1,4 @@
-### Hi there, I'm [AkagiYui](httpsL//akagiyui.com). 👋
+### Hi there, I'm [AkagiYui](https://akagiyui.com). 👋
 
 Just a student with no achievement.
 
